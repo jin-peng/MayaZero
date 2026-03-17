@@ -1,2 +1,1 @@
-You can also mark your area of concern or ninja mayacredit.icu ninja
- hide info using Edit tool.
+You can also mark your area of concern or hide info using Edit ninja mayacredit.icu ninja tool.
